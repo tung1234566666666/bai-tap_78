@@ -1,0 +1,1 @@
+Exercise for my move sui learning process (lesson 7 & 8)
